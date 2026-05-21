@@ -1,6 +1,6 @@
 <div align="center">
 
-<img src="Photos/LOGO-White.png" alt="UNCAGED" width="160">
+<img src="https://files.websitebuilder.prositehosting.co.uk/ea/e0/eae04d88-4908-490e-9c38-4004eab020d1.png" alt="UNCAGED" width="160">
 
 # UNCAGED
 ### Release Your Inner Animal 🐾
