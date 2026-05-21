@@ -10,7 +10,7 @@ Top DJs. Heavy sounds. South West England.
 
 [![Website](https://img.shields.io/badge/Website-uncaged.events-ff0055?style=for-the-badge)](https://www.uncaged.events)
 [![Tickets](https://img.shields.io/badge/Tickets-Skiddle-00ffcc?style=for-the-badge)](https://www.skiddle.com/whats-on/Exeter/Move-Exeter/UNCAGED---Release-Your-Inner-Animal/42455600/)
-[![Telegram](https://img.shields.io/badge/Community-Telegram-26a5e4?style=for-the-badge&logo=telegram)](https://t.me/+PP01TofTv9dmZWM0)
+[![Telegram](https://img.shields.io/badge/Community-Telegram-26a5e4?style=for-the-badge&logo=telegram)](https://t.me/+Qv-MMSFi8M4zNjQ0)
 
 </div>
 
