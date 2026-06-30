@@ -22,7 +22,7 @@ Top DJs. Heavy sounds. South West England.
 |---|---|
 | 📍 **Venue** | MOVE Nightclub (under Bomba), The Quay, Exeter, EX2 4AP |
 | 🕗 **Time** | 8PM — 2AM (last entry 11PM) |
-| 🎧 **Headliner** | Aphex + Guest DJs |
+| 🎧 **Headliner** | Aphex + Bea Cabbit + PKM-8 |
 | 🎵 **Sounds** | House · Techno · Hard Trance · DnB · Bounce · Donk |
 | 🔞 **Age** | Strictly 18+ with valid photo ID |
 
